@@ -1,1 +1,0 @@
-amaliy ishi 1
